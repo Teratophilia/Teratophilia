@@ -7,14 +7,3 @@
 <img src="https://64.media.tumblr.com/7d88aef712d69925165f197cd8f784de/53333f61af485e11-0d/s500x750/ac3580ad950e6fad05b8bb738debe51467bcd990.gifv" width="400">
 <img src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=0e3f3a&label=🕷Uglies">
 
-<br>
-<br>
-  <table>
-    <tr>
-      <td>
-        <br>
-       　　　𓉸　 　　 $${\color{#af2a4a}kiki}$$  　🦴　　　 $${\color{#dd5f84}ʚ(꒪ˊ꒳ˋ꒪)ɞ}$$  　⠀ $${\color{#af2a4a}hyrshe}$$  ﹕<br>
-         <br>
-      </td>
-    </tr>
-  </table>

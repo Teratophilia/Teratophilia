@@ -7,4 +7,4 @@
 <img src="https://64.media.tumblr.com/7d88aef712d69925165f197cd8f784de/53333f61af485e11-0d/s500x750/ac3580ad950e6fad05b8bb738debe51467bcd990.gifv" width="400">
 <img src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=0e3f3a&label=🕷Uglies">
 
-<p style="color: #00ff00;"> achoo </p>
+<p style="color: #000000;"> achoo </p>

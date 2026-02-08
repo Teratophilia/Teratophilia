@@ -8,6 +8,9 @@
 <img src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=523232&label=🕷Uglies">
 ${\textsf{\color{#3d0909} Fucking freak.}}$ </p>
 
-${\textsf{\color{#670c0c}Terato/Roman ⛧ Brit ⛧ Unlabeled all}}$ </p>
+${\textsf{\color{#670c0c}Terato/Roman ⛧ Brit ⛧ Unlabeled all}}$
 
-${\textsf{\color{#670c0c}!!!! Masculine terms only !!!!}}$
+${\textsf{\color{#670c0c}Strictly only masculine terms unless stated otherwise}}$
+
+
+${\textsf{\color{#670c0c}Talk to me about anything but I won't open up unless I trust you fully.}}$

@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/2ba204452bc5b9c8f19f9eae836a6b79/f80ba053beb6ae7d-3b/s400x600/e309b40661932cd46925168d94ef030bab98a804.gifv" width="1000 height=50 ">
+<img src="https://64.media.tumblr.com/2ba204452bc5b9c8f19f9eae836a6b79/f80ba053beb6ae7d-3b/s400x600/e309b40661932cd46925168d94ef030bab98a804.gifv" width="1000">
 <p align="left">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=d1bqsmqsv5xny71hcpjc38d4t&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=d1bqsmqsv5xny71hcpjc38d4t&cover_image=true&theme=natemoo-re&show_offline=true&background_color=0d1117&interchange=false&profanity=false&bar_color=554546&bar_color_cover=false">

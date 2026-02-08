@@ -6,6 +6,8 @@
           
   <p align="left">
 <img src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=523232&label=🕷Uglies">
-${\textsf{\color{#3d0909}Fucking freak.}}$ </p>
+${\textsf{\color{#3d0909} Fucking freak.}}$ </p>
 
-${\textsf{\color{#670c0c}Terato/Roman ⛧ 15 ⛧ Unlabeled all}}$
+${\textsf{\color{#670c0c}Terato/Roman ⛧ Brit ⛧ Unlabeled all}}$ </p>
+
+${\textsf{\color{#670c0c}!!!! Masculine terms only !!!!}}$

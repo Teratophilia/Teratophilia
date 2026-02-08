@@ -13,4 +13,4 @@ ${\textsf{\color{#670c0c}Terato/Roman ⛧ Brit ⛧ Unlabeled all}}$
 ${\textsf{\color{#670c0c}Strictly only masculine terms unless stated otherwise}}$
 
 
-${\textsf{\color{#670c0c}Masking 90% of the time. I won't open up unless I trust you fully.}}$
+${\textsf{\color{#670c0c}Masking most of the time. I won't open up unless I trust you fully.}}$

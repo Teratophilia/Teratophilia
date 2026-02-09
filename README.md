@@ -49,4 +49,4 @@ ${\textsf{\color{#8d3737} 𝚂𝚝𝚛𝚊𝚗𝚐𝚎𝚛𝚜 𝚜𝚑𝚘𝚞�
 
 <img src=https://blinkies.cafe/b/blinkiesCafe-aS.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-xe.gif>
 <img src=https://blinkies.cafe/b/blinkiesCafe-PT.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-vZ.gif>
-<img src=https://blinkies.cafe/b/blinkiesCafe-Jf.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-41.gif>
+<img src=https://blinkies.cafe/b/blinkiesCafe-M3.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-41.gif>

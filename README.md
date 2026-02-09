@@ -20,7 +20,7 @@
   </table>
 
 <p align="center">
-<img src=https://blinkies.cafe/b/blinkiesCafe-8t.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-ZY.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-xT.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-GG.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/mine/blinkies/proship-antiharass.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/horror-carnivore.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/rabies.gif> <img src=https://plasticdino.net/blinkie/escapedlabrat.gif> <img src=https://plasticdino.net/blinkie/screw%20you.gif> <img src=https://external-media.spacehey.net/media/sKYrFoI8Ar854uJpuM0jhie3z6qRB-3oyzLhEiJu2_wc=/https://i.ibb.co/68H9Qvf/IMG-9298.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/horror-vampire2.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/caution-donotenter.gif> <img src=https://blinkiecollecti0n.neocities.org/images/selfexpression.gif> <img src=https://blinkiecollecti0n.neocities.org/images/freeblood.gif> <img src=https://fairytrash.neocities.org/img/blinks/48.gif>
+<img src=https://files.catbox.moe/lkeysv.gif> <img src=https://files.catbox.moe/ptkpe9.gif> <img src=https://files.catbox.moe/ool4jv.gif> <img src=https://files.catbox.moe/y42hl3.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/mine/blinkies/proship-antiharass.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/horror-carnivore.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/rabies.gif> <img src=https://plasticdino.net/blinkie/escapedlabrat.gif> <img src=https://plasticdino.net/blinkie/screw%20you.gif> <img src=https://external-media.spacehey.net/media/sKYrFoI8Ar854uJpuM0jhie3z6qRB-3oyzLhEiJu2_wc=/https://i.ibb.co/68H9Qvf/IMG-9298.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/horror-vampire2.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/caution-donotenter.gif> <img src=https://blinkiecollecti0n.neocities.org/images/selfexpression.gif> <img src=https://blinkiecollecti0n.neocities.org/images/freeblood.gif> <img src=https://fairytrash.neocities.org/img/blinks/48.gif>
   
   <p align="left">
 <img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=523232&label=🕷Uglies">
@@ -47,6 +47,6 @@ ${\textsf{\color{#8d3737} 𝓒𝓻𝓮𝓮𝓹 𝔀𝓲𝓽𝓱 𝓪 𝓬𝓻�
 
 ${\textsf{\color{#8d3737} 𝚂𝚝𝚛𝚊𝚗𝚐𝚎𝚛𝚜 𝚜𝚑𝚘𝚞𝚕𝚍 𝚝𝚛𝚎𝚊𝚍 𝚌𝚊𝚛𝚎𝚏𝚞𝚕𝚕𝚢, 𝚋𝚞𝚝 𝙸𝚆𝙲 𝚊𝚕𝚠𝚊𝚢𝚜.}}$
 
-<img src=https://blinkies.cafe/b/blinkiesCafe-aS.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-xe.gif>
-<img src=https://blinkies.cafe/b/blinkiesCafe-PT.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-vZ.gif>
-<img src=https://blinkies.cafe/b/blinkiesCafe-M3.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-41.gif>
+<img src=https://files.catbox.moe/chjkzk.gif> <img src=https://files.catbox.moe/qnvo7y.gif>
+<img src=https://files.catbox.moe/ftlda2.gif> <img src=https://files.catbox.moe/mot8yl.gif>
+<img src=https://files.catbox.moe/ducau1.gif> <img src=https://files.catbox.moe/kow4za.gif>

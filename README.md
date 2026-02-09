@@ -13,7 +13,7 @@
       <td>
         <br>
       　　 $${\color{#5d3030}Taken}$$  　🎪　 $${\color{#b03030}Supersonic}$$  　⠀ $${\color{#5d3030}he/him}$$  ﹕<br>
-      　　　　　  $${\color{#b03030}Jailbreak}$$     　　　  $${\color{#b03030}Feed me}$$ 
+      　　　　　  $${\color{#471111}Jailbreak}$$     　　　  $${\color{#471111}Feed me}$$ 
          <br>
       </td>
     </tr>

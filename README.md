@@ -18,7 +18,10 @@
       </td>
     </tr>
   </table>
-          
+
+<p align="right">
+<img src=https://blinkies.cafe/b/blinkiesCafe-8t.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-ZY.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-xT.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-GG.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/mine/blinkies/proship-antiharass.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/horror-carnivore.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/rabies.gif> <img src=https://plasticdino.net/blinkie/escapedlabrat.gif> <img src=https://plasticdino.net/blinkie/screw%20you.gif> <img src=https://external-media.spacehey.net/media/sKYrFoI8Ar854uJpuM0jhie3z6qRB-3oyzLhEiJu2_wc=/https://i.ibb.co/68H9Qvf/IMG-9298.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/horror-vampire2.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/caution-donotenter.gif>
+  
   <p align="left">
 <img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=523232&label=🕷Uglies">
 ${\textsf{\color{#3d0909} Fucking freak.}}$

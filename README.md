@@ -49,4 +49,4 @@ ${\textsf{\color{#8d3737} 𝚂𝚝𝚛𝚊𝚗𝚐𝚎𝚛𝚜 𝚜𝚑𝚘𝚞�
 
 <img src=https://files.catbox.moe/chjkzk.gif> <img src=https://files.catbox.moe/qnvo7y.gif>
 <img src=https://files.catbox.moe/ftlda2.gif> <img src=https://files.catbox.moe/mot8yl.gif>
-<img src=https://files.catbox.moe/ducau1.gif> <img src=https://files.catbox.moe/kow4za.gif>
+<img src=https://files.catbox.moe/dkd7kr.gif> <img src=https://files.catbox.moe/kow4za.gif>

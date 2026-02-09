@@ -22,3 +22,5 @@ ${\textsf{\color{#670c0c}Masking most of the time. I won't ease unless I trust y
   </p>
 
   <img align="left" src=https://64.media.tumblr.com/59573819068bbdb12e973bc115b9ee56/ae15a10854d5b0c0-fa/s1280x1920/1e9a25c237dc747b5e2c8bba2d6dcf31ac605846.jpg width="300">
+  
+${\textsf{\color{#8d3737} "𝚃𝚑𝚎 𝚖𝚘𝚛𝚎 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚖𝚎, 𝚝𝚑𝚎 𝚖𝚘𝚛𝚎 𝚢𝚘𝚞'𝚕𝚕 𝚗𝚎𝚎𝚍 𝚖𝚎."}}$

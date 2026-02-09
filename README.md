@@ -44,6 +44,6 @@ ${\textsf{\color{#8d3737} 𝓒𝓻𝓮𝓮𝓹 𝔀𝓲𝓽𝓱 𝓪 𝓬𝓻�
 
 ${\textsf{\color{#8d3737} 𝚂𝚝𝚛𝚊𝚗𝚐𝚎𝚛𝚜 𝚜𝚑𝚘𝚞𝚕𝚍 𝚝𝚛𝚎𝚊𝚍 𝚌𝚊𝚛𝚎𝚏𝚞𝚕𝚕𝚢, 𝚋𝚞𝚝 𝙸𝚆𝙲 𝚊𝚕𝚠𝚊𝚢𝚜.}}$
 
-<img src=https://blinkies.cafe/b/blinkiesCafe-aS.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-HE.gif>
+<img src=https://blinkies.cafe/b/blinkiesCafe-aS.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-9i.gif>
 <img src=https://blinkies.cafe/b/blinkiesCafe-PT.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-vZ.gif>
 <img src=https://blinkies.cafe/b/blinkiesCafe-Jf.gif> <img src=https://blinkies.cafe/b/blinkiesCafe-41.gif>

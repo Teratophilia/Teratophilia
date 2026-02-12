@@ -19,6 +19,8 @@
     </tr>
   </table>
 
+  <p align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Radley&size=15&duration=2000&pause=300&color=781B1B&background=f6b2be600&width=230&lines=Hands+up;Let+me+in+your+loneliness;Guard+down;I'm+here+to+give+your+heart+a+rest;" />
 <p align="center">
 <img src=https://files.catbox.moe/xjrunc.gif> <img src=https://files.catbox.moe/ptkpe9.gif> <img src=https://files.catbox.moe/ool4jv.gif> <img src=https://files.catbox.moe/y42hl3.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/mine/blinkies/proship-antiharass.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/horror-carnivore.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/rabies.gif> <img src=https://plasticdino.net/blinkie/escapedlabrat.gif> <img src=https://plasticdino.net/blinkie/screw%20you.gif> <img src=https://external-media.spacehey.net/media/sKYrFoI8Ar854uJpuM0jhie3z6qRB-3oyzLhEiJu2_wc=/https://i.ibb.co/68H9Qvf/IMG-9298.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/horror-vampire2.gif> <img src=https://missskunky-graphics.neocities.org/assets/graphics/blinkies/misc/caution-donotenter.gif> <img src=https://blinkiecollecti0n.neocities.org/images/selfexpression.gif> <img src=https://blinkiecollecti0n.neocities.org/images/freeblood.gif> <img src=https://fairytrash.neocities.org/img/blinks/48.gif>
   

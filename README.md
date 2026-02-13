@@ -25,8 +25,8 @@
   <p align="left">
 <img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=523232&label=🕷Uglies">
 ${\textsf{\color{#3d0909} Burn your bible. .lyr}}$
-  </p>
-   </p>
+<img align="right" width="200" src="https://files.catbox.moe/ebnttt.png">
+    
 <p align="left">
 ${\textsf{\color{#670c0c}𝔗𝔢𝔯𝔞𝔱𝔬/ℜ𝔬𝔪𝔞𝔫 ⛧ 𝔅𝔯𝔦𝔱 ⛧ 𝔘𝔫𝔩𝔞𝔟𝔢𝔩𝔢𝔡 𝔞𝔩𝔩 ⛧ Anti-Harassment ⛧ Anti-Censorship}}$
   

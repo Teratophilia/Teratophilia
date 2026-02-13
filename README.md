@@ -24,15 +24,17 @@
   
   <p align="left">
 <img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=523232&label=🕷Uglies">
-${\textsf{\color{#3d0909} Paraphilia collector.}}$
+${\textsf{\color{#3d0909} Burn your bible. .lyr}}$
   </p>
-
-${\textsf{\color{#670c0c}𝔗𝔢𝔯𝔞𝔱𝔬/ℜ𝔬𝔪𝔞𝔫 ⛧ 𝔅𝔯𝔦𝔱 ⛧ 𝔘𝔫𝔩𝔞𝔟𝔢𝔩𝔢𝔡 𝔞𝔩𝔩}}$
-
+  
+<p align="left">
+${\textsf{\color{#670c0c}𝔗𝔢𝔯𝔞𝔱𝔬/ℜ𝔬𝔪𝔞𝔫 ⛧ 𝔅𝔯𝔦𝔱 ⛧ 𝔘𝔫𝔩𝔞𝔟𝔢𝔩𝔢𝔡 𝔞𝔩𝔩 ⛧ Anti-Harassment ⛧ Anti-Censorship}}$
+  
+<p align="center">
 ${\textsf{\color{#670c0c}𝕾𝖙𝖗𝖎𝖈𝖙𝖑𝖞 𝖔𝖓𝖑𝖞 𝖒𝖆𝖘𝖈𝖚𝖑𝖎𝖓𝖊 𝖙𝖊𝖗𝖒𝖘 𝖚𝖓𝖑𝖊𝖘𝖘 𝖘𝖙𝖆𝖙𝖊𝖉 𝖔𝖙𝖍𝖊𝖗𝖜𝖎𝖘𝖊}}$
 
-
-${\textsf{\color{#670c0c}𝔐𝔞𝔰𝔨𝔦𝔫𝔤 𝔪𝔬𝔰𝔱 𝔬𝔣 𝔱𝔥𝔢 𝔱𝔦𝔪𝔢. ℑ 𝔴𝔬𝔫'𝔱 𝔢𝔞𝔰𝔢 𝔲𝔫𝔩𝔢𝔰𝔰 ℑ 𝔱𝔯𝔲𝔰𝔱 𝔶𝔬𝔲 𝔣𝔲𝔩𝔩𝔶.}}$
+<p align="right">
+${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟, 𝔇𝔯𝔞𝔤𝔲𝔩𝔞 + 𝔒𝔱𝔥𝔢𝔯 ℌ𝔬𝔯𝔯𝔬𝔯 𝔢𝔫𝔧𝔬𝔶𝔢𝔯}}$
 <p align="center"
   
 <img src=https://64.media.tumblr.com/a5d1d45c78d6f6f65f685b2980106e2e/9b360b95216ccc4d-31/s250x400/8dab26584fdf6411f64526e754c12947989cdf0b.pnj width="500"> </p>

@@ -37,10 +37,8 @@ ${\textsf{\color{#670c0c}‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 ${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟, 𝔇𝔯𝔞𝔤𝔲𝔩𝔞 + 𝔒𝔱𝔥𝔢𝔯 ℌ𝔬𝔯𝔯𝔬𝔯 𝔢𝔫𝔧𝔬𝔶𝔢𝔯}}$
   
 </p>
-  <img src=https://64.media.tumblr.com/a5d1d45c78d6f6f65f685b2980106e2e/9b360b95216ccc4d-31/s250x400/8dab26584fdf6411f64526e754c12947989cdf0b.pnj width="750"> </p>
+  <img src=https://64.media.tumblr.com/a5d1d45c78d6f6f65f685b2980106e2e/9b360b95216ccc4d-31/s250x400/8dab26584fdf6411f64526e754c12947989cdf0b.pnj width="600"> </p>
 </a>
-  </p>
-
   <img align="left" src=https://64.media.tumblr.com/59573819068bbdb12e973bc115b9ee56/ae15a10854d5b0c0-fa/s1280x1920/1e9a25c237dc747b5e2c8bba2d6dcf31ac605846.jpg width="200">
   
 ${\textsf{\color{#8d3737} "𝚃𝚑𝚎 𝚖𝚘𝚛𝚎 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚖𝚎, 𝚝𝚑𝚎 𝚖𝚘𝚛𝚎 𝚢𝚘𝚞'𝚕𝚕 𝚗𝚎𝚎𝚍 𝚖𝚎."}}$

@@ -45,7 +45,7 @@ ${\textsf{\color{#8d3737} "𝚃𝚑𝚎 𝚖𝚘𝚛𝚎 𝚢𝚘𝚞 𝚠𝚊�
 
 ${\textsf{\color{#8d3737} 𝓘'𝓶 𝓮𝔁𝓱𝓪𝓾𝓼𝓽𝓮𝓭 𝓰𝓮𝓽 𝓶𝓮 𝓸𝓾𝓽 𝓸𝓯 𝓽𝓱𝓲𝓼 𝓹𝓻𝓲𝓼𝓸𝓷.           ⟡ ⋆       .˚      ₊    ⟡          +            ⋆  }}$
  
-${\textsf{\color{#8d3737} 𝚂𝚝𝚛𝚊𝚗𝚐𝚎𝚛𝚜 𝚜𝚑𝚘𝚞𝚕𝚍 𝚝𝚛𝚎𝚊𝚍 𝚌𝚊𝚛𝚎𝚏𝚞𝚕𝚕𝚢, 𝚋𝚞𝚝 𝙸𝚆𝙲 𝚊𝚕𝚠𝚊𝚢𝚜.}}$     -       ˙ ⋆         .˚            ⊹₊       ⟡ ⋆
+${\textsf{\color{#8d3737} 𝚂𝚝𝚛𝚊𝚗𝚐𝚎𝚛𝚜 𝚜𝚑𝚘𝚞𝚕𝚍 𝚝𝚛𝚎𝚊𝚍 𝚌𝚊𝚛𝚎𝚏𝚞𝚕𝚕𝚢, 𝚋𝚞𝚝 𝙸𝚆𝙲 𝚊𝚕𝚠𝚊𝚢𝚜.      -       ˙ ⋆         .˚            ⊹₊       ⟡ ⋆}}$
 
 <img src=https://files.catbox.moe/chjkzk.gif> <img src=https://files.catbox.moe/qnvo7y.gif>
 <img src=https://files.catbox.moe/ftlda2.gif> <img src=https://files.catbox.moe/mot8yl.gif>

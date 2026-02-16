@@ -52,5 +52,5 @@ ${\textsf{\color{#8d3737} 𝚂𝚝𝚛𝚊𝚗𝚐𝚎𝚛𝚜 𝚜𝚑𝚘𝚞�
 <img src=https://files.catbox.moe/dkd7kr.gif> <img src=https://files.catbox.moe/kow4za.gif>
 </p>
 
-${\textsf{\color{#670c0c}I DO NOT ASSOCIATE WITH THIS PERSON vvvvv}}$
-[https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0#heading=h.jhfs1ou4p8ri](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0#heading=h.jhfs1ou4p8ri)
+${\textsf{\color{#670c0c}I DO NOT ASSOCIATE WITH THIS PERSON ----->}}$
+[SAL CALLOUT](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0#heading=h.jhfs1ou4p8ri)

@@ -67,7 +67,6 @@ ${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟,
   
   ★ Supporter perk beggers - Buy it yourself buddy.
     
-*******
 </details>
 
 *******
@@ -82,7 +81,6 @@ ${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟,
     <div align="left">
     Boulet Brothers, Joker out, Joost, Rey, Limp Bizkit, MCR-T, Go-Jo, The Daughters Of Eve, YUNGBLUD, adan diaz, Lucio Corsi, Erika Vikman, VÆB, Katarsis, jailbreak iphone now, Aiko, Roe Kapara, Panic! At The Disco, KUKU$, Baby Lasagna, Ragazzki, Jonas Lovv
     
-*******
 </details>
 
 *******

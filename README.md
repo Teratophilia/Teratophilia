@@ -38,19 +38,54 @@ ${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟,
   
 </p>
   <img src=https://64.media.tumblr.com/a5d1d45c78d6f6f65f685b2980106e2e/9b360b95216ccc4d-31/s250x400/8dab26584fdf6411f64526e754c12947989cdf0b.pnj width="600"> </p>
-</a>
-  <img align="left" src=https://64.media.tumblr.com/59573819068bbdb12e973bc115b9ee56/ae15a10854d5b0c0-fa/s1280x1920/1e9a25c237dc747b5e2c8bba2d6dcf31ac605846.jpg width="200">
   
-${\textsf{\color{#8d3737} "𝚃𝚑𝚎 𝚖𝚘𝚛𝚎 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝 𝚖𝚎, 𝚝𝚑𝚎 𝚖𝚘𝚛𝚎 𝚢𝚘𝚞'𝚕𝚕 𝚗𝚎𝚎𝚍 𝚖𝚎."}}$
+<p align="center">${{\color{#be0707}\Huge{\texttt{.   ݁  ₊   ⊹   .   ݁  BYI   ݁   .   ⊹   ₊   ݁  .}}}}$</h2>
 
-${\textsf{\color{#8d3737} 𝓘'𝓶 𝓮𝔁𝓱𝓪𝓾𝓼𝓽𝓮𝓭 𝓰𝓮𝓽 𝓶𝓮 𝓸𝓾𝓽 𝓸𝓯 𝓽𝓱𝓲𝓼 𝓹𝓻𝓲𝓼𝓸𝓷.}}$
+*******
 
-${\textsf{\color{#8d3737} 𝚂𝚝𝚛𝚊𝚗𝚐𝚎𝚛𝚜 𝚜𝚑𝚘𝚞𝚕𝚍 𝚝𝚛𝚎𝚊𝚍 𝚌𝚊𝚛𝚎𝚏𝚞𝚕𝚕𝚢, 𝚋𝚞𝚝 𝙸𝚆𝙲 𝚊𝚕𝚠𝚊𝚢𝚜.}}$
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{#800000}✦. DNI .✦}}$</summary>
+    <div align="left">
 
-<img src=https://files.catbox.moe/chjkzk.gif> <img src=https://files.catbox.moe/qnvo7y.gif>
-<img src=https://files.catbox.moe/ftlda2.gif> <img src=https://files.catbox.moe/mot8yl.gif>
-<img src=https://files.catbox.moe/dkd7kr.gif> <img src=https://files.catbox.moe/kow4za.gif>
-</p>
+      
+  ★ People who mock my music taste - it's more than just music to me.
+  
+
+  ★ Requiring 24/7 attention from me - I'm not wasting my energy on you.
+
+  
+  ★ Mean people in general - I'll just hide ya.
+
+
+  
+  ★ Pro-contact - Weirdos...
+
+  
+  ★ -13 - I don't find the majority of y'all mature.
+
+  
+  ★ Supporter perk beggers - Buy it yourself buddy.
+    
+*******
+</details>
+
+*******
+
+<p align="center">${{\color{#be0707}\Huge{\texttt{.   ݁  ₊   ⊹   .   ݁  STUFF I LIKE (wip)   ݁   .   ⊹   ₊   ݁  .}}}}$</h2>
+
+*******
+
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{#680c0c}˗ˏˋART★STSˎˊ˗}}$</summary>
+    <div align="left">
+    Boulet Brothers, Joker out, Joost, Rey, Limp Bizkit, MCR-T, Go-Jo, The Daughters Of Eve, YUNGBLUD, adan diaz, Lucio Corsi, Erika Vikman, VÆB, Katarsis, jailbreak iphone now, Aiko, Roe Kapara, Panic! At The Disco, KUKU$, Baby Lasagna, Ragazzki, Jonas Lovv
+    
+*******
+</details>
+
+*******
 
 ${\textsf{\color{#670c0c}I DO NOT ASSOCIATE WITH THIS PERSON ----->}}$
 [SAL CALLOUT](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0#heading=h.jhfs1ou4p8ri)

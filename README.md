@@ -67,6 +67,8 @@ ${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟,
 
   
   ★ Supporter perk beggers - Buy it yourself buddy.
+
+  ★ Anyone who knows or associates themselves with @digitalcolours or their fg
     
 </details>
 

@@ -39,7 +39,10 @@ ${\textsf{\color{#670c0c}‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 ${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟, 𝔇𝔯𝔞𝔤𝔲𝔩𝔞 + ℌ𝔬𝔯𝔯𝔬𝔯 𝔢𝔫𝔧𝔬𝔶𝔢𝔯}}$
   
 </p>
+
+<p align="center">
   <img src=https://64.media.tumblr.com/a5d1d45c78d6f6f65f685b2980106e2e/9b360b95216ccc4d-31/s250x400/8dab26584fdf6411f64526e754c12947989cdf0b.pnj width="600"> </p>
+  
 <p align="center">${{\color{#be0707}\Huge{\texttt{.   ݁  ₊   ⊹   .   ݁  BYI   ݁   .   ⊹   ₊   ݁  .}}}}$</h2>
 
 *******

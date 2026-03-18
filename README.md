@@ -69,9 +69,7 @@ ${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟,
   ★ -13 - I don't find the majority of y'all mature.
 
   
-  ★ Supporter perk beggers - Buy it yourself buddy.
-
-  ★ Anyone who knows or associate(s/ed) themselves with @digitalcolours @minecraftmaxxing or their friend group. (Unless we're already friends)
+  ★ Supporter perk beggers - Buy it yourself buddy
 
   ★ Being defensive for literally no reason
 

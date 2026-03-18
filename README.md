@@ -71,7 +71,7 @@ ${\textsf{\color{#670c0c}ℭ𝔲𝔩𝔱 𝔬𝔣 𝔗𝔥𝔢 𝔏𝔞𝔪𝔟,
   
   ★ Supporter perk beggers - Buy it yourself buddy.
 
-  ★ Anyone who knows or associate(s/ed) themselves with @digitalcolours or their friend group. (Unless we're already friends)
+  ★ Anyone who knows or associate(s/ed) themselves with @digitalcolours @minecraftmaxxing or their friend group. (Unless we're already friends)
 
   ★ Being defensive for literally no reason
 

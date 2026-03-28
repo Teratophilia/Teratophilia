@@ -1,4 +1,4 @@
-PSSST FOLLOW [@kleintism](https://github.com/kleintism)
+PSSST FOLLOW MY LEGIT BROTHER [@kleintism](https://github.com/kleintism)
 
 <p align="left">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=d1bqsmqsv5xny71hcpjc38d4t&redirect=true">

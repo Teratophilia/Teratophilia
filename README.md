@@ -91,19 +91,29 @@ PLEASE be patient with me, I'm a little slow and may need some things explaining
 
 *******
 
-<p align="center">${{\color{#be0707}\Huge{\texttt{.   ݁  ₊   ⊹   .   ݁  STUFF I LIKE (wip)   ݁   .   ⊹   ₊   ݁  .}}}}$</h2>
+<p align="center">${{\color{#be0707}\Huge{\texttt{.   ݁  ₊   ⊹   .   ݁  SPAM (wip)   ݁   .   ⊹   ₊   ݁  .}}}}$</h2>
 
 *******
 
 <div align="center">  
   <details>
-    <summary>${\textsf{\color{#680c0c}˗ˏˋART★STSˎˊ˗}}$</summary>
+    <summary>${\textsf{\color{#680c0c}˗ˏˋARTISTSˎˊ˗}}$</summary>
     <div align="left">
     Boulet Brothers, Joker out, Joost, Rey, Limp Bizkit, MCR-T, Go-Jo, The Daughters Of Eve, YUNGBLUD, adan diaz, Lucio Corsi, Erika Vikman, VÆB, Katarsis, jailbreak iphone now, Aiko, Roe Kapara, Panic! At The Disco, KUKU$, Baby Lasagna, Ragazzki, Jonas Lovv
+      
+*******
     
 </details>
 
-*******
+<div align="center">  
+  <details>
+    <summary>${\textsf{\color{#b32626}˗ˏˋDOODLEZˎˊ˗}}$</summary>
+    <div align="center">
 
+ <img src=https://files.catbox.moe/jumft1.webp width="300">
+
+</details>
+
+*******
 ${\textsf{\color{#670c0c}I DO NOT ASSOCIATE WITH THIS PERSON ----->}}$
 [SAL CALLOUT](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0#heading=h.jhfs1ou4p8ri)

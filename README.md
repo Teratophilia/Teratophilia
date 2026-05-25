@@ -7,3 +7,9 @@ PSSST FOLLOW MY LEGIT BROTHER [@kleintism](https://github.com/kleintism)
 </p>
 
 yo looking back.... this shit kinda messy.
+
+look at all of my amazing and cool and amazing and cool songs i listen to!
+
+lwk wanna change my ghub entirely
+
+compliment me im into it

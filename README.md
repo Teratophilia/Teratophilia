@@ -5,11 +5,4 @@ PSSST FOLLOW MY LEGIT BROTHER [@kleintism](https://github.com/kleintism)
     <img align="left" src="https://spotify-github-profile.kittinanx.com/api/view?uid=d1bqsmqsv5xny71hcpjc38d4t&cover_image=true&theme=spotify-embed&show_offline=true&background_color=1c0d0d&interchange=false&profanity=false&bar_color=523232&bar_color_cover=false&mode=dark" width="400">
   </a>
 </p>
-
-yo looking back.... this shit kinda messy.
-
-look at all of my amazing and cool and amazing and cool songs i listen to!
-
-lwk wanna change my ghub entirely
-
-compliment me im into it
+im gonna update this when i can i promie i cant be bothered rn LOL IM REMAKING IT I SWEAR

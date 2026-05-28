@@ -11,3 +11,5 @@ im gonna update this when i can i promise i cant be bothered rn LOL IM REMAKING 
 lowkey low key toxtricity lowkey kinda low key
 
 061 !!!!!!!!!!
+
+<img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=e52b7d&label=cigarettes-smoked">

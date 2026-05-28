@@ -14,7 +14,7 @@ lowkey low key toxtricity lowkey kinda low key
 
 061 !!!!!!!!!!
 
-<img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=e52b7d&label=cigarettes-smoked">
+<img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=e52b7d&label=losers">
 
 CHECK [LNK.BIO](https://lnk.bio/filth) FOR ALL LINKS + SOCIALS
 

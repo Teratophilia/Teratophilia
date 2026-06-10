@@ -21,3 +21,5 @@ CHECK [LNK.BIO](https://lnk.bio/filth) FOR ALL LINKS + SOCIALS
 [SAL CALLOUT](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0#heading=h.jhfs1ou4p8ri)
 
 YAYYYY 400 I LOVE U ALLL CHEERS CELEBRATES WOOOOOOOOOO
+
+also you can know if a pony is me from MY SON AKA THE FISH

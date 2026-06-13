@@ -6,13 +6,7 @@ PSSST FOLLOW MY LEGIT BROTHER [@kleintism](https://github.com/kleintism)
   </a>
 </p>
 
-piers kin + selfship omg
-
-im gonna update this when i can i promise i cant be bothered rn LOL IM REMAKING IT I SWEAR
-
-lowkey low key toxtricity lowkey kinda low key
-
-061 !!!!!!!!!!
+they call me sonic cuz i am faster than sound i keep on jumping around
 
 <img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=e52b7d&label=losers">
 

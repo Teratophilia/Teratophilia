@@ -6,7 +6,7 @@ PSSST FOLLOW MY LEGIT BROTHER [@kleintism](https://github.com/kleintism)
   </a>
 </p>
 
-they call me sonic cuz i am faster than sound i keep on jumping around
+bleh
 
 <img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=e52b7d&label=losers">
 

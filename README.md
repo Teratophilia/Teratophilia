@@ -16,6 +16,6 @@ CHECK [LNK.BIO](https://lnk.bio/filth) FOR ALL LINKS + SOCIALS
 
 LMFAOO 500 OMG IM AMAZINGF
 
-hi i love my friends thanks friends i love u all. dni if u find pregnancy ESPECIALLY MPREG funny.
+hi i love my friends thanks friends i love u all
 
 <img align="left" src="https://files.catbox.moe/c70kv4.png">

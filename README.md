@@ -6,16 +6,10 @@ PSSST FOLLOW MY LEGIT BROTHER [@kleintism](https://github.com/kleintism)
   </a>
 </p>
 
-bleh
+okay right im gonna rmk this in the coming days......
 
 <img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=e52b7d&label=losers">
-
-CHECK [LNK.BIO](https://lnk.bio/filth) FOR ALL LINKS + SOCIALS
-
-[SAL CALLOUT](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0#heading=h.jhfs1ou4p8ri)
 
 LMFAOO 500 OMG IM AMAZINGF
 
 hi i love my friends thanks friends i love u all
-
-<img align="left" src="https://files.catbox.moe/c70kv4.png">

@@ -6,7 +6,7 @@ PSSST FOLLOW MY LEGIT BROTHER [@kleintism](https://github.com/kleintism)
   </a>
 </p>
 
-okay right im gonna rmk this in the coming days......
+college is pissing me OFF
 
 <img align="left" src="https://komarev.com/ghpvc/?username=Teratophilia&style=for-the-badge&color=e52b7d&label=losers">
 
